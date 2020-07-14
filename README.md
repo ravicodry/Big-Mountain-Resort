@@ -1,1 +1,1 @@
-# Big-Mountain-Resort
+# Guided Capstone 
